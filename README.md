@@ -1,9 +1,16 @@
-Hola, soy Tornado Azul. 😎
+🥽 Creador de INTS PLAY
+• Creator of INTS PLAY
 
-Yeah, el boricua que ama la tecnología de todo tipo y el espacio. 
+🌕 Creador de Dakspace
+• Dakspace's creator
 
-- 🧭 Fundador de @Stheelly.
-- 🌕 Coocreador de @Dakspace.
-- 👨‍💻 Estudiante de informatica.
-- 🌐 Amante de internet. 
-- 🦊 - 🤖 - 🦑 - 🐻‍❄️
+🏛️ Amante a la historia
+• History lover
+
+🧑🏻‍💻 Estudiante de Tecnología de NUC University
+• Technology student at NUC University
+
+🇵🇷 Hispano de corazón
+• Hispanic at heart
+
+Aquí en 📍 Barceloneta, PR. ❤️
