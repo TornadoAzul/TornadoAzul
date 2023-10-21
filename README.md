@@ -1,16 +1,7 @@
-🥽 Creador de INTS PLAY
-• Creator of INTS PLAY
+¡Hola! Quiero informarte que todos
+los proyectos presentes en mi perfil
+de Github están disponibles para y
+los invito a usarlos libremente.
 
-🌕 Creador de Dakspace
-• Dakspace's creator
-
-🏛️ Amante a la historia
-• History lover
-
-🧑🏻‍💻 Estudiante de Tecnología de NUC University
-• Technology student at NUC University
-
-🇵🇷 Hispano de corazón
-• Hispanic at heart
-
-Aquí en 📍 Barceloneta, PR. ❤️
+Atentamente,
+Tornado Azul
